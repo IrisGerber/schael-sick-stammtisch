@@ -1,0 +1,17 @@
+.idea/
+.idea/*
+build/
+build/*
+classes/
+classes/*
+.gradle/
+.gradle/*
+out/
+*.iml
+*.ipr
+*.iws
+atlassian-ide-plugin.xml
+.project
+
+#idea
+.DS_Store
