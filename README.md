@@ -25,7 +25,7 @@ Am Wochentag Mittwoch und der Uhrzeit ab 19.00 Uhr für den Stammtisch gibt es j
 
 Unser nächster Stammtisch-Termin ist am
 
-### 6. September 2023 um 19:00
+### 20. September 2023 um 19:00
 
 Ort: 51069 Köln-Dellbrück
 
