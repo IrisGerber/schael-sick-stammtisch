@@ -27,7 +27,7 @@ Unser nächster Stammtisch-Termin ist am
 
 ### 20. September 2023 um 19:00
 
-Ort: 51069 Köln-Dellbrück
+Ort: 51069 Köln-Höhenhaus
 
 ## Kontakt
 
