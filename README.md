@@ -27,7 +27,7 @@ Unser nächster Stammtisch-Termin ist am
 
 ### 4. Oktober 2023 um 19:00
 
-Ort: 51069 Köln-Holweide
+Ort: 51067 Köln-Holweide
 
 ## Kontakt
 
@@ -39,4 +39,4 @@ SchaelSickStammtisch(Ätt)gmx.de
 ## Interessante Links
 
 Rubicon bietet u.a. Informationen, welche Gruppen es in Köln für ältere Lesben gibt:
-https://rubicon-koeln.de/alter/alter-koeln/
+[https://rubicon-koeln.de/alter/alter-koeln/](https://rubicon-koeln.de/alter/alter-koeln/)
