@@ -35,3 +35,8 @@ Wo genau?
 Das erfährst Du, wenn Du uns anschreibst, da wir sicher gehen möchten, dass genug Sitzplätze für alle reserviert sind :-)  
 
 SchaelSickStammtisch(Ätt)gmx.de
+
+## Interessante Links
+
+Rubicon bietet u.a. Informationen, welche Gruppen es in Köln für ältere Lesben gibt:
+https://rubicon-koeln.de/alter/alter-koeln/
