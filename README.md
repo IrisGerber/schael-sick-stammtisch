@@ -38,5 +38,5 @@ SchaelSickStammtisch(Ätt)gmx.de
 
 ## Interessante Links
 
-Rubicon bietet u.a. Informationen, welche Gruppen es in Köln für ältere Lesben gibt:
+Rubicon bietet u.a. Informationen, welche Gruppen es in Köln für ältere Lesben gibt:  
 [https://rubicon-koeln.de/alter/alter-koeln/](https://rubicon-koeln.de/alter/alter-koeln/)
