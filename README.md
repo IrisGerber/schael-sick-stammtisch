@@ -2,7 +2,7 @@
 
 Wir sind ein 14-tägiger Stammtisch für Frauen/Lesben auf der rechten Rheinseite von Köln.  
 Für alle Nicht-Kölnerinnen hier die Erklärung, was es mit der "Schäl Sick" auf sich hat:  
-http://koelnwiki.de/wiki/Sch%C3%A4l_Sick  
+[http://koelnwiki.de/wiki/Sch%C3%A4l_Sick](http://koelnwiki.de/wiki/Sch%C3%A4l_Sick)  
 
 ## Beschreibung
 
