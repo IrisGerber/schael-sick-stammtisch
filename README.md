@@ -27,7 +27,7 @@ Unser nächster Stammtisch-Termin ist am
 
 ### 4. Oktober 2023 um 19:00
 
-Ort: 51067 Köln-Holweide
+Ort: 51069 Köln-Dellbrück
 
 ## Kontakt
 
