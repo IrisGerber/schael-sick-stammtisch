@@ -23,18 +23,18 @@ Am Wochentag Mittwoch und der Uhrzeit ab 19.00 Uhr für den Stammtisch gibt es j
 
 ## Nächster Termin
 
-Unser nächster Stammtisch-Termin ist am
+Unser nächster Stammtisch-Termin ist am  
 
-### 18. Oktober 2023 um 19:00
+### 1. November 2023 um 19:00  
 
-Ort: 50679 Köln-Deutz
+Ort: 51069 Köln-Dellbrück  
 
-## Kontakt
+## Kontakt  
 
 Wo genau?  
 Das erfährst Du, wenn Du uns anschreibst, da wir sicher gehen möchten, dass genug Sitzplätze für alle reserviert sind :-)  
 
-SchaelSickStammtisch(Ätt)gmx.de
+SchaelSickStammtisch(Ätt)gmx.de  
 
 ## Interessante Links
 
