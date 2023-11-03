@@ -25,9 +25,9 @@ Am Wochentag Mittwoch und der Uhrzeit ab 19.00 Uhr für den Stammtisch gibt es j
 
 Unser nächster Stammtisch-Termin ist am  
 
-### 1. November 2023 um 19:00  
+### 15. November 2023 um 19:00  
 
-Ort: 51069 Köln-Dellbrück  
+Ort: 51067 Köln-Holweide  
 
 ## Kontakt  
 
@@ -38,5 +38,5 @@ SchaelSickStammtisch(Ätt)gmx.de
 
 ## Interessante Links
 
-Rubicon bietet u.a. Informationen, welche Gruppen es in Köln für ältere Lesben gibt:  
+Rubicon bietet u.a. Informationen, welche Angebote es bzgl. Rubicon für ältere Lesben gibt:  
 [https://rubicon-koeln.de/alter/alter-koeln/](https://rubicon-koeln.de/alter/alter-koeln/)
