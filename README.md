@@ -23,11 +23,13 @@ Am Wochentag Mittwoch und der Uhrzeit ab 19.00 Uhr für den Stammtisch gibt es j
 
 ## Nächster Termin
 
+Wir wünschen allseits ein gutes Neues Jahr! :-D
+
 Unser nächster Stammtisch-Termin ist am  
 
-### 13. Dezember 2023 um 19:00  
+### 10. Januar 2024 um 19:00  
 
-Ort: 51061 Köln-Höhenhaus  
+Ort: 51067 Köln-Holweide  
 
 ## Kontakt  
 
