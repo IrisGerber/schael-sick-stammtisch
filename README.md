@@ -27,9 +27,9 @@ Wir wünschen allseits ein gutes Neues Jahr! :-D
 
 Unser nächster Stammtisch-Termin ist am  
 
-### 10. Januar 2024 um 19:00  
+### 24. Januar 2024 um 19:00  
 
-Ort: 51067 Köln-Holweide  
+Ort: 51069 Köln-Dellbrück
 
 ## Kontakt  
 
