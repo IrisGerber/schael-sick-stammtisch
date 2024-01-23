@@ -29,7 +29,7 @@ Unser nächster Stammtisch-Termin ist am
 
 ### 24. Januar 2024 um 19:00  
 
-Ort: 51069 Köln-Dellbrück
+Ort: 51067 Köln-Holweide
 
 ## Kontakt  
 
