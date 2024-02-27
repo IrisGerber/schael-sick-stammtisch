@@ -33,7 +33,7 @@ Ort: 51069 Köln-Dellbrück
 
 Unser Stammtisch trifft sich am 3. April um  
 
-###19:00 in unserer Lieblings-Buchhandlung in K-Dellbrück!
+### 19:00 in unserer Lieblings-Buchhandlung in K-Dellbrück!
 
 Dort können wir uns "einschließen lassen" und bei leckerem Käse und Bio-Rotwein in Büchern schmökern, uns gegenseitig vorlesen, plaudern, etc. :-D  
 
