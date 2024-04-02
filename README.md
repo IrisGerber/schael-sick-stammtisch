@@ -25,11 +25,10 @@ Am Wochentag Mittwoch und der Uhrzeit ab 19.00 Uhr für den Stammtisch gibt es j
 
 Unser nächster Stammtisch-Termin ist am  
 
-### 6. März 2024 um 19:00  
+### 3. April 2024 um 19:00  
 
 Ort: 51069 Köln-Dellbrück  
 
-## Teaser für den 3. April
 
 Unser Stammtisch trifft sich am 3. April um  
 
