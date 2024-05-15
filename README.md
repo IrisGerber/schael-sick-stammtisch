@@ -25,9 +25,9 @@ Am Wochentag Mittwoch und der Uhrzeit ab 19.00 Uhr für den Stammtisch gibt es j
 
 Unser nächster Stammtisch-Termin ist am  
 
-### 15. April 2024 um 19:00  
+### 15. Mai 2024 um 19:00  
 
-Ort: 51069 Köln-Holweide  
+Ort: 51067 Köln-Holweide  
 
 
 ## Kontakt  
