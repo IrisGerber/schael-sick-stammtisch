@@ -25,9 +25,9 @@ Am Wochentag Mittwoch und der Uhrzeit ab 19.00 Uhr für den Stammtisch gibt es j
 
 Unser nächster Stammtisch-Termin ist am  
 
-### 27. November 2024 um 19:00  
+### 19. Februar 2025 um 19:00  
 
-Ort: 51067 Köln-Holweide  
+Ort: 51069 Köln-Dellbrück  
 
 
 ## Kontakt  
